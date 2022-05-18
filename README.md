@@ -1,1 +1,1 @@
-Interested in software development and cloud computing
+Interested in software development
